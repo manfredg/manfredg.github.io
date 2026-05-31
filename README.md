@@ -1,1 +1,1 @@
-# oldschoolgames.github.io
+# manfredg.github.io
